@@ -2,7 +2,7 @@
 
 ## Today
 
-Raining men (Hallelulua!)
+Raining men and cats and dogs (Hallelulua!)
 
 ## Tomorrow
 
